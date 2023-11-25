@@ -9,4 +9,4 @@ KEY HIGHLIGHTS :
 
 PBIX file link: https://drive.google.com/file/d/1GEKji6VkqyOt0-5k8TxPUBb9_h2Of6uO/view?usp=sharing
 
-PDF link: https://drive.google.com/file/d/1lST8YhOO05Fw9pHQ_r-p9uwDGyB16LWb/view?usp=sharing
+PDF link: https://drive.google.com/file/d/1xctbXhOgiILKvXPBzERrkn9ZMqD0C23b/view?usp=sharing
